@@ -21,8 +21,11 @@
 ![image](https://github.com/user-attachments/assets/fd6b275d-d325-4dae-87e3-610ca93b30c0)
 ![image](https://github.com/user-attachments/assets/0f3838b6-e810-4077-8d99-137dc3456ce9)
 
-
 ## Задание 7 
+
+![image](https://github.com/user-attachments/assets/740a863f-2a36-44af-8722-21941e1d3a11)
+![image](https://github.com/user-attachments/assets/200dff1f-f759-4fc3-af29-9f7c553735b8)
+![image](https://github.com/user-attachments/assets/0acd15fb-981e-4d50-b7e6-a0e0bbd5d59f)
 
 ## Задание 8
 
