@@ -29,6 +29,17 @@
 
 ## Задание 8
 
+![image](https://github.com/user-attachments/assets/1f888c16-4a15-41d2-8786-5d3689477fc9)
+![image](https://github.com/user-attachments/assets/e2ee3c4c-7a61-4b1a-a0d1-63b46f47f3d7)
+
+
 ## Задание 9
 
+![image](https://github.com/user-attachments/assets/e3343edd-129a-40e2-b516-ba6727a4ce0c)
+![image](https://github.com/user-attachments/assets/c864e084-3380-46f1-aa4c-d0dbc0a149c1)
+
+
 ## Задание 10 
+
+![image](https://github.com/user-attachments/assets/86f81fb2-bd8b-4da2-9734-2fa5e2de588b)
+![image](https://github.com/user-attachments/assets/a84d0962-fd67-4a24-a028-4b2da9346253)
