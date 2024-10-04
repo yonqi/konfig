@@ -20,5 +20,8 @@
 
 ##  Задание 6
 
+![image](https://github.com/user-attachments/assets/f3ee8d36-bcac-479e-bb78-536edb1f0ff8)
 
 ##  Задание 7
+
+![image](https://github.com/user-attachments/assets/5187f50d-703c-4232-9beb-416a71f8c86d)
