@@ -16,6 +16,9 @@
 
 ##  Задание 5
 
+![image](https://github.com/user-attachments/assets/8a99155c-c678-40ad-abc6-c5c0838077b5)
 
 ##  Задание 6
+
+
 ##  Задание 7
