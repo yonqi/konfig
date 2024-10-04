@@ -24,4 +24,3 @@
 
 ##  Задание 7
 
-![image](https://github.com/user-attachments/assets/5187f50d-703c-4232-9beb-416a71f8c86d)
